@@ -1,6 +1,8 @@
-Thanks for downloading this template!
+Resume dan Portofolio Update Vika Asri Devianti
 
-Template Name: Personal
-Template URL: https://bootstrapmade.com/personal-free-resume-bootstrap-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+
+
+
+-----------------
+Vika Asri Devianti
+Email : Vikaasridevianti@gmail.com
